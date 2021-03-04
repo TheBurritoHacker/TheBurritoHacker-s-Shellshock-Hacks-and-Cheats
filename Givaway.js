@@ -3,7 +3,7 @@ Giveaway
 Giveaway
 Giveaway
 
-SOld out
+Sold out
 
 Sold out
 
